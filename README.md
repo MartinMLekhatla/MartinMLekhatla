@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MartinMLekhatla
-- 👀 I’m interested in all forms of art
+- 👀 I’m interested in all forms of art, block chain, crypto currency
 - 🌱 I’m currently learning Software Development
 - 💞️ I’m looking to collaborate on
 - 📫 How to reach me ...
